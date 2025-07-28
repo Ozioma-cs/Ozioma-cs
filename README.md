@@ -47,9 +47,4 @@ I'm a curious problem-solver who loves working with data and is now forging a pa
 
 ---
 
-*“Learning never exhausts the mind.” – Leonardo da Vinci*
-
-
-
-
-first profile uodate
+“Learning never exhausts the mind.” – Leonardo da Vinci
